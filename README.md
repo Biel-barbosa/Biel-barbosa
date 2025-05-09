@@ -22,7 +22,7 @@
 
 ### 📫 Como me encontrar:
 - 💼 [LinkedIn]([https://www.linkedin.com/in/gabriel-barbosa/](https://www.linkedin.com/in/gabriel-a-barbosa/)
-- 📧 Tlggabriel@gmail.com
+- 📧 gabriellbarbosaads@gmail.com
 
 ---
 
